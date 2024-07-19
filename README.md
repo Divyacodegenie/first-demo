@@ -1,2 +1,2 @@
 # first-demo
-new to github and learn more about this 
+new to github... learn & an explore things... 
